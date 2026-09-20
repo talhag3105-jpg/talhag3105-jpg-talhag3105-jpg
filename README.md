@@ -1,6 +1,6 @@
 # 👋 Merhaba, ben Ahmet!
 
-💻 Developer | 🌐 Web Developer 
+💻 Developer | 🌐 Web Developer | Full-Stack Developer
 
 ## 🚀 Hakkımda
 
