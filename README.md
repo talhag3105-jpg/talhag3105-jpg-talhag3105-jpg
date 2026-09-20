@@ -25,6 +25,8 @@ Burada geliştirdiğim projeleri ve açık kaynak çalışmalarımı paylaşıyo
 
 ### 📫 Bana Ulaş
 
-Discord: `kullanıcı_adın`
+Discord: `ahmwtta11`
+
+İnstagram: `ahmwtta`
 
 ⭐ Profilime göz attığın için teşekkürler!
